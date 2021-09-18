@@ -1,0 +1,2 @@
+- 👋 I’m @BenCat8472
+- 🌱 Looking to learn.
